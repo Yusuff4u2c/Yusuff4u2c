@@ -22,7 +22,7 @@
 
 - [Unlocking African Tourism Potential Video](https://drive.google.com/file/d/1SKKjeVs6GbmkD6qGUqxyWvgKbAqP6zQd/view?usp=sharing
 )
-- [Unlocking African Tourism Potential Deck Slack](https://www.youtube.com/watch?v=uHy3oM7NnoU)
+- [Unlocking African Tourism Potential Slack Deck](https://www.youtube.com/watch?v=uHy3oM7NnoU)
 
 
 <!--
